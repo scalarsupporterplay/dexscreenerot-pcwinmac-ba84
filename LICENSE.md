@@ -1,4 +1,4 @@
-# 
+# Automatique dexscreener sniper bot modules complémentaires pour Mac OS | Exclusif dexscreener sniper bot modules complémentaires pour PC Windows. Avec analyse de marché et détection de honeypot — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
